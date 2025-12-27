@@ -12,8 +12,8 @@
 <a href="https://ibb.co/GnX6Zhb"><img src="https://i.ibb.co/NtXv04H/image.png" alt="image" border="0"></a>
 
 $\color{#808080}{✦}$<br />
-wsp to interact, I'm not always off-tab.
-im open for conversations, you can sit next to me when I'm alone !
+AFK sit sometimes, I like to spectate and look at people's skins
+whispers are the quickest way to get my attention
 
 mostly at 18+ serv, but I go in safe or #1rus  servers. spawn or marvel area. 
 
