@@ -10,10 +10,9 @@
 <a href="https://ibb.co/GnX6Zhb"><img src="https://i.ibb.co/NtXv04H/image.png" alt="image" border="0"></a>
 
 $\color{#808080}{✦}$<br />
-AFK sit sometimes, I like to spectate and look at people's skins
-whispers are the quickest way to get my attention
+AFK sit sometimes, I like to spectate and look at people's skins, whispers are the quickest way to get my attention
 
-mostly at 18+ serv, but I go in safe or #1rus  servers. spawn or marvel area. 
+mostly at 18+ serv, but I go in safe or #1rus  servers. spawn or marvel area
 
 if you're younger than 18, keep interactions short (please)
 i don't have a long dni, i'll just hide or ignore you if i need to!
